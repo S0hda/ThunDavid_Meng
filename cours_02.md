@@ -10,12 +10,12 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 Un compagnie de technologie. Le site de compagnie ainsi que leur produit sont très minimalisme et c'est plaisant au yeux. Ils montre leur produit à travers l'art et la typographie utiliser done une allure **retro futuriste**.
 
 ### [Stress Level Zero](https://www.stresslevelzero.com/)
-Un compagnie de jeux video en realite virtuel, ils font des jeux avec beaucoup de detail sur la vie réel comme le poid des objets la force du mouvement du joueur. Leur jeux t'immerse dans le monde qui on créer et t'oublie que tu est dans un jeu. Ca M'inspire a chercher a **immerser** le spectatrice ou meme moi meme durant la creation de mes arts
+Un compagnie de jeux video en realite virtuel exemple **BoneWorks**, ils font des jeux avec beaucoup de detail sur la vie réel comme le poid des objets, la force du mouvement du joueur. Leur jeux t'immerse dans le monde qui on créer et t'oublie que tu est dans un jeu. Ca m'inspire a chercher a **immerser** le spectatrice ou meme moi meme durant la creation de mes arts
 
 ### [] 
 Expliquer pourquoi vous avez choisi ce lien.  
 
-### [Fishing The Feed](https://www.fishingthefeed.com/fr/#sectionNine)
+### [Fishing The Feed](https://www.fishingthefeed.com/fr/#sectionOne)
 Se Site web me cherche car sa traite le probleme sur l'élevage des produits alimentaire de la mer. Le style utiliser dans le site est un style avec beaucoup de **polygone** et le fond du site est d'un style **Water Color**
 ### [Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
