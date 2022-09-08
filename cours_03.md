@@ -17,7 +17,7 @@ Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez p
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
-
+Je n'est pas encore d'idée fix mais je me verrai peut-être dans un environement comme Ubisoft, a faire des models 
 ### Projets
 Expliquez un ou des projets que vous aimeriez faire. 
-J'aurait aimer travailler sur le film Avatar car étant un film de 2009 leur qualité de rendu **3D** est équivalent a des films d'aujourd'hui.
+J'aurait aimer travailler sur le film Avatar car étant un film de 2009 leur qualité de rendu **3D** est toujour équivalent a des films d'aujourd'hui.
