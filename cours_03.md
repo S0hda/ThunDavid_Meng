@@ -3,7 +3,7 @@
 
 ### Présentation
 Parlez de vous. 
-Bonjour, Je m'appelle Thun David. C'est ma 2em session ici a Montmorency
+Bonjour, Je m'appelle Thun David. C'est ma 2em essaie au college Montmorency, dans mes temps libres j'aime gamer biensur defois je suis en **VR**, je danse, je joue au volley meme si je suis pas si bon. 
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
@@ -11,7 +11,7 @@ Ce qui m'intereste dans le domaine c'est l'aspect creatif ainsi que la touche d'
 
 ### Emplois qui vous intéressent
 Nommez deux emplois.
-
+2 emplois qui m'intereste présentement c'est étre web designer ou animateur 3d
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
 
