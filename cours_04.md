@@ -17,6 +17,6 @@ Il concept des jeux vidéos, créer des models 3d, des scenes. Il peut se trouve
 Le concepteur sonor s'occupe du audio, a créer ou améliorer le sonor example d'un film comme Avatar. Faire des sons de pas de pieds, de branche qui brise ou le bruit de l'eau dans une rivière. le concepteur sonor doit étre patient, curieux et creatif pour example faire du Folio. Il se retrouve souvent dans de grand entreprise comme **Weta Digital** .Ca m'intereste car je suis toujour curieux par les technique utiliser pour faire des sons comme exemple utiliser des celeries pour mimiquer des os qui brise.
 ### Emploi 5 - Identification
 **Programmeur**
-Le programmeur s'occupe de programmer, un site, un jeux videos et autre. Y fait en sorte que le client ou le joueur puisse interagir avec le site ou le jeu sans bug. Il peut ce retrouver dans de grand entreprise comme **Google**, il peut je retrouver étant un travailleur autonome. 
+Le programmeur s'occupe de programmer, un site, un jeux videos et autre. Y fait en sorte que le client ou le joueur puisse interagir avec le site ou le jeu sans bug. Il peut ce retrouver dans de grand entreprise comme **Google** ou il peut se retrouver étant un travailleur autonome. Un programmeur doit étre patient, persévérent et étre capable de résoudre des problèmes.
 
 
