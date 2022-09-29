@@ -2,10 +2,9 @@
 ## Rétrospective de la présentation 1
 
 ### Points forts
-Nommer deux points forts de votre présentation. 
+Je trouve que mes diapositives était belles et captivant, que sa roulais a un tempo confortable
 
 ### Points à améliorer
-Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations. 
-
+Je sautais des points quelque fois et defois j'était pas clair, j'amelioras les 2 points en me preparant un texte
 ### Présentation préférée
-Quelle présentation avez-vous préféré et pourquoi? 
+Ma présentation que j'ai aimé le plus c'est lui de Dyravith, sa présentation donnait une ambience confortable et lui même se sentait confortable
