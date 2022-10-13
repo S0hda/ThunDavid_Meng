@@ -1,7 +1,6 @@
 # Cours 7
 ## Analyse critique d'une oeuvre
-L'oeuvre que j'ai choisis c'est cel Oasis avec l'installation de vincent van gogth
-Entre 300 et 400 mots. 
+L'oeuvre que j'ai choisis c'est cel Oasis avec l'installation de vincent van gogth 
 
 ### Description
 L'installation de Oasis était dans des chambres fermer de la lumière exterieure, utilisait plusieur projecteur projectant vers des murs blancs et le plancher ainsi que des speakers dans tout les coins des chambres pour une audio immersive dans la dernière chambre la plancher a des capteurs qui resente nos pas de pied et active l'animation correspondant. Il y avait des multiple mirroirs en dome dans la 2em chambre qui reflectait la lumière.
