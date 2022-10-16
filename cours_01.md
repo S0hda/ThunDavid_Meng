@@ -1,5 +1,5 @@
-* J'ai choisis le programme de **TIM** car j'ai vue qui avait beaucoup de cour de creation. Ayant fait de l'art plastique durant mes trois premières années secondaire, du design en 4em et finalement du programation et cinema contre ma volonté, mais qu'au finale j'ai adorer j'ai sentie que le programme **TIM** etait quelque chose que je pourrait essayer comme deuxieme tantative au college 😆
-* Le cour de photoshop ainsi que le cour en photographie c'est les deux qui me motive le plus en ce moment, il y a aussi le _3d_ mais ça c'est dans longtemp. 😃
-* J'ai pas encore de métier en vue mais peut-être illustrateur de scene, Animateur? Le première idée que j'ai en tête c'est faire des illustration de personnage ou scene dans des jeux. 🙂
+* J'ai choisi le programme de **TIM** car j'ai vu qui avait beaucoup de cours de création. Ayant fait de l'art plastique durant mes trois premières années secondaires, du design en 4em et finalement de la programmation et cinéma contre ma volonté à cause du covid, mais qu'aux finales j'ai adoré j'ai sentie que le programme **TIM** était quelque chose que je pourrais essayer comme deuxième tentative au collège 😆.
+* Le cours de Photoshop ainsi que le cour en photographie c'est les deux qui me motive le plus en ce moment, il y a aussi le _3d_ mais ça, c'est dans longtemps. 😃
+* Je n'ai pas encore de métier en vue mais peut-être illustrateur de scène, Animateur? La première idée que j'ai en tête c'est faire des illustrations de personnage ou scène dans des jeux. 🙂
 
 
