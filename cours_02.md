@@ -1,5 +1,5 @@
 ### [Nothing](https://ca-en.nothing.tech/)
-Une compagnie de technologie. Le site de compagnie ainsi que leur produit sont très minimalisme et c'est plaisant au yeux. Ils montre leur produit à travers l'art et la typographie utiliser done une allure **retro futuriste**.
+Une compagnie de technologie. Le site de compagnie ainsi que leur produit sont très minimalisme et c'est plaisant aux yeux. Ils montrent leur produit à travers l'art et la typographie utilisée donne une allure **rétro futuriste**.
 
 ### [Stress Level Zero](https://www.stresslevelzero.com/)
 Un compagnie de jeux video en realite virtuel exemple **BoneWorks**, ils font des jeux avec beaucoup de detail sur la vie réel comme le poid des objets, la force du mouvement du joueur. Leur jeux t'immerse dans le monde qui on créer et t'oublie que tu est dans un jeu. Ca m'inspire a chercher a **immerser** le spectatrice ou meme moi meme durant la creation de mes arts.
