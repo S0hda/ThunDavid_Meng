@@ -2,7 +2,7 @@
 Une compagnie de technologie. Le site de compagnie ainsi que leur produit sont très minimalisme et c'est plaisant aux yeux. Ils montrent leur produit à travers l'art et la typographie utilisée donne une allure **rétro futuriste**.
 
 ### [Stress Level Zero](https://www.stresslevelzero.com/)
-Un compagnie de jeux video en realite virtuel exemple **BoneWorks**, ils font des jeux avec beaucoup de detail sur la vie réel comme le poid des objets, la force du mouvement du joueur. Leur jeux t'immerse dans le monde qui on créer et t'oublie que tu est dans un jeu. Ca m'inspire a chercher a **immerser** le spectatrice ou meme moi meme durant la creation de mes arts.
+Une compagnie de jeux vidéo en réalité virtuelle exemple **BoneWorks**, ils font des jeux avec beaucoup de détail sur la vie réelle comme le poids des objets, la force du mouvement du joueur. Leurs jeux t'emmerdent dans le monde qui ont créé et tu oublies que tu es dans un jeu. Ça m'inspire à chercher à **immerser** la spectatrice ou même moi-même durant la création de mes arts.
 
 ### [Weta Digital](https://www.wetafx.co.nz/)
 Une compagnie de **effet visuel** qui ont fait beaucoup de film comme Avatar, Avengers: Endgame, le recent Star Wars: Obi_Wan Kenobi, Godzilla vs kingkong et bien plus. Leur oeuvres melange le fictif avec la realité et il fait questionner le visionneur quesqui est vrai ou faux.
