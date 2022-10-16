@@ -9,6 +9,7 @@ Une compagnie de **effet visuel** qui a fait beaucoup de films comme Avatar, Ave
 
 ### [Fishing The Feed](https://www.fishingthefeed.com/fr/#sectionOne)
 Se Site web me cherche, car sa traite le problème sur l'élevage des produits alimentaires de la mer. Le style utilisé dans le site est un style avec beaucoup de **polygones** et le fond du site est d'un style **Water Color**.
+
 ### [Pokemon Go](https://pokemongolive.com/)
-Bon tout le monde connais ce jeux, Pokemon Go a première est un jeu qui utilise ta localisation de ton appareil pour te lancer dans un environement avec des rencontre de pokemon dans tout les coins, comme un google maps mais avec plus d'interactivité. Sa utilise aussi la camera de ton appareil pour faire du realité augmenté tu dois cherche autour de toi pour trouver le pokemon.
+Bon tout le monde connaît ce jeu, Pokemon Go a première est un jeu qui utilise ta localisation de ton appareil pour te lancer dans un environnement avec des rencontres de Pokémon dans tous les coins, comme un google maps, mais avec plus d'interactivité. Ça utilise aussi la caméra de ton appareil pour faire de la réalité augmentée tu dois cherche autour de toi pour trouver le Pokémon.
 
