@@ -8,7 +8,7 @@ Une compagnie de jeux vidéo en réalité virtuelle exemple **BoneWorks**, ils f
 Une compagnie de **effet visuel** qui a fait beaucoup de films comme Avatar, Avengers: Endgame, le recent Star Wars: Obi_Wan Kenobi, Godzilla vs kingkong et bien plus. Leurs œuvres mélange le fictif avec la réalité et il fait questionner le visionneur qu’est-ce qui est vrai ou faux.
 
 ### [Fishing The Feed](https://www.fishingthefeed.com/fr/#sectionOne)
-Se Site web me cherche car sa traite le probleme sur l'élevage des produits alimentaire de la mer. Le style utiliser dans le site est un style avec beaucoup de **polygone** et le fond du site est d'un style **Water Color**.
+Se Site web me cherche, car sa traite le problème sur l'élevage des produits alimentaires de la mer. Le style utilisé dans le site est un style avec beaucoup de **polygones** et le fond du site est d'un style **Water Color**.
 ### [Pokemon Go](https://pokemongolive.com/)
 Bon tout le monde connais ce jeux, Pokemon Go a première est un jeu qui utilise ta localisation de ton appareil pour te lancer dans un environement avec des rencontre de pokemon dans tout les coins, comme un google maps mais avec plus d'interactivité. Sa utilise aussi la camera de ton appareil pour faire du realité augmenté tu dois cherche autour de toi pour trouver le pokemon.
 
